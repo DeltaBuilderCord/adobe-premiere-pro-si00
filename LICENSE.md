@@ -1,4 +1,4 @@
-
+Enhance Adobe Premiere Pro for macOS with new Adobe Premiere Pro for macOS Overlay | AI-upscaling + time-remapping, the #1 overlay. Includes AI-upscaling and time-remapping for a
 
 
 
